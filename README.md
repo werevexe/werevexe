@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...jjsdfdgfsdf5lkjj
 dfgdg87
 <!---adsdf
-werevexe/werevexe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.1234562
+werevexe/werevexe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GistHub profile.1234562
 You can click the Preview link to take a look at your changes.
 --->3345634
