@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...wr
 - 📫 How to reach me ...sdfwre
 - 😄 Pronouns: ...544jgl
-- ⚡ Fun fact: ...jjsdfdgfsdf5lkjj
+- ⚡ Fun fact: ...jjsdfdgfsdf5lkjjsdf
 dfgdg87
 <!---adsdf
 werevexe/werevexe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GistHub profile.1234562
