@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...jjsdfdgfsdf5lkjjsdfggg
 dfgdg873523313
 <!---adsdf45
-werevexe/werevexe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GistHub profile.1234562tyh
+werevexe/werevexe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GistHub pfdrdrfrofile.1234562tyh
 You can click the Preview link to take a look at your changes.26633
 --->3345634
