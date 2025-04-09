@@ -3,7 +3,7 @@ lih152grfgd453bgf- 👋 Hi, I’m @werevexe
 - 🌱 I’m currently learning ...636+69gfbgbfg
 - 💞️ I’m looking to collaborate on ...wr8558595885596mjherf415126263+dfvd
 - 📫 How to reach me ...23gfgfb652sdfzxc023020ihvzcegrgre545445kjjk
-- 😄 Pronouns: ...544jgl---9-9-ertnvbnvbfhmfhdfdssdfdfds
+- 😄 Pronouns: ...544jgl---9-9-ertnvbnvbfhmfhdfdssdfdfdsmhgbn
 - ⚡ Fun fact: ...jjsdfdgfsdf5lkjjsdfggg
 dfgdg873523313bfddsdcdd58+sfdefe
 <!---9
